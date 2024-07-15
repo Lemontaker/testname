@@ -1,1 +1,1 @@
-fuck nivida
+fuck nividia
